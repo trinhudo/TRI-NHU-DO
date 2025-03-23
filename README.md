@@ -1,1 +1,1 @@
-_For the latest updates, please visit_ [**tri-nhu-do.work**](http://tri-nhu-do.work/). _Thank you!_
+_My personal website has moved to a new address:_ [**tri-nhu-do.work**](http://tri-nhu-do.work/)
